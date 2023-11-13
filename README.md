@@ -1,0 +1,2 @@
+Rolands Antulis 
+Pašvērtējums: safe
