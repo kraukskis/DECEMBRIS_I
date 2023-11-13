@@ -1,2 +1,2 @@
 Rolands Antulis 
-Pašvērtējums: safe
+Pašvērtējums: ir labi
